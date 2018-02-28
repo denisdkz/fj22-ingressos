@@ -1,0 +1,1 @@
+Descrição: Sessão de cinema
